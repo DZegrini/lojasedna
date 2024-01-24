@@ -1,0 +1,2 @@
+# lojasedna
+Lojas Sedna
